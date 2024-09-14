@@ -8,5 +8,7 @@ Hi there, I'm Carson! 👋
 👯 I’m looking to collaborate on innovative projects that impact our world in a positive way.
 
 
-Feel free to reach out to me via email: carson_skumar@hotmail.com
-LinkedIn Profile: https://www.linkedin.com/in/carson-senthilkumar/
+Feel free to reach out to me via email or LinkedIn: 
+
+carson_skumar@hotmail.com
+https://www.linkedin.com/in/carson-senthilkumar/
