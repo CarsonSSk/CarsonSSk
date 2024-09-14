@@ -9,3 +9,4 @@ Hi there, I'm Carson! 👋
 
 
 Feel free to reach out to me via email: carson_skumar@hotmail.com
+LinkedIn Profile: https://www.linkedin.com/in/carson-senthilkumar/
