@@ -1,11 +1,11 @@
 ### 
 Hi there, I'm Carson! 👋
 
-🔭 I'm currently working on exploring new programming languages, and creating exciting projects.
+🔭 I'm currently working on exploring new programming languages, and creating exciting projects while working as a Software Engineer at Intact.
 
-🌱 I’m in the process of finishing my Bachelor's Degree in Software Engineering and am always eager to embrace new challenges and enhance my skills.
+🌱 Graduated SOEN in May of 2025 and have interned at Ubisoft, Microsoft, Intact Insurance, and Business Development Bank of Canada.
 
-👯 I’m looking to collaborate on innovative projects that impact our world in a positive way.
+👯 I’m looking to collaborate on innovative projects that impact our world in real and positive way.
 
 
 Feel free to reach out to me via email or LinkedIn: 
